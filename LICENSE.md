@@ -1,4 +1,4 @@
-# 
+# Best NordVPN extensions for Mac OS | Advanced NordVPN extensions for PC Windows. Featuring password auditing and custom themes — optimized for maximum performance on every platform.
 
 
 
